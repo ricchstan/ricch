@@ -1,0 +1,2 @@
+# ricch
+tajiri
